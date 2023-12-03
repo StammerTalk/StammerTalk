@@ -1,0 +1,1 @@
+👋 Hi, I’m @StammerTalk, a self-help organization for people who stammer. We are passionate about finding and sharing technologies that can help people with speech disabilities to communicate better and more confidently. We believe that everyone deserves a voice and a chance to express themselves.
